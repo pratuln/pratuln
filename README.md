@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **SQL**
 
-- 📫 How to reach me **pratuln@me.com**
+- 📫 How to reach me **pratulneupane@gmail.com**
 
 - ⚡ Fun fact **I am from Nepal**
 
